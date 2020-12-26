@@ -1,4 +1,4 @@
-> > > Hello guys 👋
+○○○ Hello guys 🤟🏽
 
 • 📌 French developer | ADN RP
 • 📫 Contact me on discord | .Sohhka#8888
