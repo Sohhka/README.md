@@ -1,6 +1,6 @@
 ○○○ Hello guys 🤟🏽
 
-• 📌 French developer | ADN RP
+• 📌 French developer
 
 • 📫 Contact me on discord | .Sohhka#8888
 
